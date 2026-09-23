@@ -18,4 +18,4 @@
 Microsoft Excel, Microsoft Power BI, KO 10-K Annual Reports
 
 ### About me
-MSc Accounting and Finance, University of Surrey | FMVA Certified | FP&A and Finance Analyst
+Part-Qualified CIMA | MSc Accounting and Finance, University of Surrey | FMVA Certified | FP&A and Finance Analyst
